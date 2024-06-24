@@ -1,4 +1,4 @@
 Hot water
 Tea powder
-Milk
+Milk or oat milk
 Ice
